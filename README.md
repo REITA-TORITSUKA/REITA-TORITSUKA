@@ -2,6 +2,6 @@
 
 <div align="center">
  <sub><sub> 
-no I don't ship torisai 😂</sub>
+yes I don't ship torisai 😂</sub>
 </sub>
 </div>
