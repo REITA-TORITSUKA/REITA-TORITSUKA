@@ -32,6 +32,13 @@
 
 [ᵘⁿʳʷᵃ](https://www.unrwa.org/) 
 
+[ᶠʳᵉᵉ ᴾᵃˡᵉˢᵗᶦⁿᵉ](https://www.freepalestine.net.au/) 
+
+[ʳᵉˢᵒᵘʳᶜᵉ ˡᶦˢᵗ](https://www.analulopez.com/wp-content/uploads/2023/10/FREE-PALESTINE-RESOURCE-LIST.pdf) 
+
+[ᵖᵃˡᵉˢᵗᶦⁿᵉ ᶜᵃᵐᵖᵃᶦᵍⁿ](https://palestinecampaign.org/resources/) 
+
+[ᶠˡᵘᶠᶠˡᵉᶜᶜ](https://fluffle.cc/provide) 
 
 
 </details>
