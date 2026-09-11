@@ -2,6 +2,6 @@
 
 <div align="center">
  <sub><sub> 
- ion ship torisai ok.. don't slime me out/sub>
+ ion ship torisai ok.. don't slime me out /sub>
 </sub>
 </div>
