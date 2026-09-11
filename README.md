@@ -14,7 +14,11 @@
 
 
 <details>
-<summary>⠀ᶠʳᵉᵉ ᴾᵃˡᵉˢᵗᶦⁿᵉ ˡᶦⁿᵏˢ ᵗᵒ ʰᵉˡᵖ</summary>   ⠀ ⠀
+<summary>⠀ˡᶦⁿᵏˢ ᵗᵒ ʰᵉˡᵖ ᵖᵖˡ</summary>   ⠀ ⠀
+
+  ◇──◆──◇──◆
+
+ ᶠʳᵉᵉ ᴾᵃˡᵉˢᵗᶦⁿᵉ::
 
 [ˡᶦⁿᵏᵗʳᵉᵉ](https://linktr.ee/helpoutpalestine)
 
@@ -39,6 +43,34 @@
 [ᵖᵃˡᵉˢᵗᶦⁿᵉ ᶜᵃᵐᵖᵃᶦᵍⁿ](https://palestinecampaign.org/resources/) 
 
 [ᶠˡᵘᶠᶠˡᵉᶜᶜ](https://fluffle.cc/provide) 
+
+  ◇──◆──◇──◆
+
+ᴳᵃʸ ᴹᵃʳʳᶦᵃᵍᵉ::
+
+[ᵉᵠᵘᵃˡˡʸʷᵉᵈ](https://equallywed.com/equality-minded-lgbtq-inclusive-wedding-websites/) 
+
+[ᵉⁿᵍᵃʸᵍᵉᵈ ʷᵉᵈᵈᶦⁿᵍˢ](https://www.engaygedweddings.com/) 
+
+[ᵐᵃʳʳᶦᵃᵍᵉ ᵉᵠᵘᵃˡᶦᵗʸ](https://www.marriageequality.org/) 
+
+[ᵐᶦˡᶦᵗᵃʳʸ ᵒⁿᵉ ˢᵒᵘʳᶜᵉ](https://www.militaryonesource.mil/financial-legal/legal/legally-married-same-sex-couples-info/) 
+
+[ᵒᵘʳ ʷᵒʳˡᵈ ᶦⁿ ᵈᵃᵗᵃ](https://ourworldindata.org/grapher/marriage-same-sex-partners-equaldex) 
+
+[ᶠʳᵉᵉᵈᵒᵐ ᵗᵒ ᵐᵃʳʳʸ](https://www.freedomtomarry.org/) 
+
+[ᵘⁿˢᵖᵃˡˢʰ](https://unsplash.com/s/photos/gay-wedding) 
+
+[ᵖᶦˣᵃᵇᵃʸ](https://pixabay.com/images/search/gay%20marriage/) 
+
+[ᵈᵒⁿᵃᵗᵉ](https://www.freedomtomarryglobal.org/donate) 
+
+
+WIP I'll add more when I'm not tired
+
+
+
 
 
 </details>
