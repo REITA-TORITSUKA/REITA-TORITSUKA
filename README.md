@@ -2,7 +2,7 @@
 
 <div align="center">
  <sup><sup> 
- i love yaoi😛😛</sup>
+ go for it nakamura x one room ta crossover NOW</sup>
 </sup>
 </div>
 
