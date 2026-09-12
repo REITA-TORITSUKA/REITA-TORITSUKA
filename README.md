@@ -44,6 +44,13 @@
 
 [ᶠˡᵘᶠᶠˡᵉᶜᶜ](https://fluffle.cc/provide) 
 
+
+
+
+
+
+
+
   ◇──◆──◇──◆
 
 ᴳᵃʸ ᴹᵃʳʳᶦᵃᵍᵉ::
@@ -64,7 +71,32 @@
 
 [ᵖᶦˣᵃᵇᵃʸ](https://pixabay.com/images/search/gay%20marriage/) 
 
-[ᵈᵒⁿᵃᵗᵉ](https://www.freedomtomarryglobal.org/donate) 
+[ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ¹](https://www.freedomtomarryglobal.org/donate) 
+
+[ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ²](https://www.marriageequality.org/) 
+
+[ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ³](https://afer.org/ways-to-give/) 
+
+[ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ⁴](https://give.hrc.org/page/190209/donate/1?locale=en-US) 
+
+[ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ⁵](https://lambdalegal.org/) 
+
+[ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ⁶](https://familyequality.org/) 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 WIP I'll add more when I'm not tired
