@@ -44,9 +44,19 @@
 
 [ᶠˡᵘᶠᶠˡᵉᶜᶜ](https://fluffle.cc/provide) 
 
+[ᵇᵘᶦˡᵈ ᴾᵃˡᵉˢᵗᶦⁿᵉ](https://buildpalestine.com/blog/trusted-organizations-to-donate-to-palestine/) 
 
+[ᶜˡᶦᶜᵏ ᵗᵒ ʰᵉˡᵖ ᴾᵃˡᵉˢᵗᶦⁿᵉ](https://arab.org/click-to-help/palestine/)
 
+[ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ¹](https://donate.palestinecampaign.org/) 
 
+[ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ²](https://donate.unrwa.org/int/en/gaza) 
+
+[ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ³](https://crisisrelief.un.org/en/donate-opt-crisis) 
+
+[ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ⁴](https://www.healpalestine.org/donate/) 
+
+[ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ⁵](https://www.pcrf.net/donate) 
 
 
 
@@ -84,7 +94,7 @@
 [ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ⁶](https://familyequality.org/) 
 
 
-
+   ◇──◆──◇──◆
 
 
 
