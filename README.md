@@ -1,6 +1,6 @@
 <div align="center">
 
-[![fake-views🤣🤣🤣](https://hits.sh/github.com/REITA-TORITSUKA.svg?style=flat-square&label=reita-juniors&extraCount=1500&color=4e627d&labelColor=4e627d)](https://hits.sh/github.com/REITA-TORITSUKA/)
+[![fake-views🤣🤣🤣](https://hits.sh/github.com/REITA-TORITSUKA.svg?style=flat-square&label=reita-juniors&extraCount=1500&color=DD3CEF&labelColor=FFDC4E)](https://hits.sh/github.com/REITA-TORITSUKA/)
 
 
 
