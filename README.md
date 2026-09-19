@@ -4,11 +4,11 @@
 
 
 
-![notanuwumaster](https://64.media.tumblr.com/a3c0e7511138db8e322218f23d902ef6/fafc4840cb591501-33/s500x750/5de449cbd36607cc05a3c418805133100c49975b.pnj) 
+![notanuwumaster](https://64.media.tumblr.com/6ec7caba97ce670cd2b067a6a1cc6a1d/d568a8f790ead592-b2/s500x750/394d3bf7bf4263fa5041c769e11ff13b7f5b96fb.gifv) 
 
 <div align="center">
  <sup><sup> 
- torisai disliker but I love the art shshus</sup>
+ I'm both of them irl 😂😂</sup>
 </sup>
 </div>
 
