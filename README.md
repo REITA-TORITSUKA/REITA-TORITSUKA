@@ -4,7 +4,7 @@
 </div>
 <div align="center"> 
 
-  ![toritsukaimginnaslimeyououtuntilyourorganspopoutandimgonnaplayjumpropewiththemokay](https://64.media.tumblr.com/fd9cc1e6227a657dfc04fa3bc27d1e46/a03f8bfa44d101db-11/s400x600/b1a4fce97e4dbed3e200a3c7eba276589caf30b9.jpg) 
+  ![toritsukaimginnaslimeyououtuntilyourorganspopoutandimgonnaplayjumpropewiththemokay](https://64.media.tumblr.com/a1c7784b49fffb4fc8c7436d9b5e1167/1ed32f2814171c7d-c3/s1280x1920/68e1c8a355b684dc163f88af8621f39111759bd2.jpg) 
 
 
   
