@@ -1,5 +1,7 @@
 <div align="center">
-<a href="https://reita-toritsuka.straw.page/home">ˢᵗʳᵃʷ</a> <a href="https://abbyzzz888.atabook.org/">ᵃᵗᵃ</a>   <a href="https://guns.lol/abbyyzzz">ᵍᵘⁿˢ.ˡᵒˡ</a>
-</h4>
-</div>
+
       
+<sub>[straw](https://reita-toritsuka.straw.page/home)</sub> <sub>[新book](https://abbyzzz888.atabook.org/)</sub> <sub>[socials](https://guns.lol/abbyyzzz)</sub>
+
+</div>
+
