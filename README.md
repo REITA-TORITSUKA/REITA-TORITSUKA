@@ -1,27 +1,7 @@
-<div align="center">
- <sup><sup> 
- art creds to popipurin on redbubble</sup>
-</sup>
-</div>
 
 
 
-
-![toritsukaimginnaslimeyououtuntilyourorganspopoutandimgonnaplayjumpropewiththemokay](https://64.media.tumblr.com/45b91a867522d71ef250d2bf6a31e0bd/b4734dc949a2a4b0-cf/s1280x1920/230ef3f1fce2ddb7e3409d03bd57a58e960a792c.pnj) 
+![toritsukaimginnaslimeyououtuntilyourorganspopoutandimgonnaplayjumpropewiththemokay](https://64.media.tumblr.com/c4c5184bc818727dbc409b84508168cd/1ed32f2814171c7d-fc/s1280x1920/81b23dcf1b4992bceae639c5e6583fe6102b99d3.jpg) 
 
 
   
-<div align="center">
-<details>
-<summary>⠀ᶦᵈᵏ </summary>   ⠀ ⠀
-
-
-
-
-
-
-
-
-
-
-</details>
